@@ -8,9 +8,9 @@
 
 ![App Screenshot](https://i.postimg.cc/FH2ww6Nv/image.png)
 
-![App Screenshot](https://i.postimg.cc/T2svv0Vt/Screenshot-2023-05-29-183602.png)
+![App Screenshot](https://i.postimg.cc/vDR30cJd/image.png)
 
-![App Screenshot](https://i.postimg.cc/prSmDjnP/Screenshot-2023-05-29-184001.png)
+![App Screenshot](https://i.postimg.cc/7ZzyPzHS/image.png)
 
 ![App Screenshot](https://i.postimg.cc/q7pv6wZ8/image.png)
 
