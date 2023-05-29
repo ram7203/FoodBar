@@ -14,7 +14,7 @@
 
 ![App Screenshot](https://i.postimg.cc/vDR30cJd/image.png)
 
-![App Screenshot](https://i.postimg.cc/7ZzyPzHS/image.png)
+![App Screenshot](https://i.postimg.cc/qMMsdcGZ/image.png)
 
 
 ![App Screenshot](https://i.postimg.cc/q7pv6wZ8/image.png)
